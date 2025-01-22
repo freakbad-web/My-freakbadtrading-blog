@@ -1,0 +1,1 @@
+# My-freakbadtrading-blog
